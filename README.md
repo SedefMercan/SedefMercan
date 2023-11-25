@@ -1,5 +1,5 @@
 # 🌓 Hi 👋 My name is Sedef.
-<br> ✔️I work as a Process Support Employee in Access Customer Service.<br>🏫 I'm studying Computer Programming.<br>💻 I'm currently learning Front-End.<br>💬 I'm just starting to learn software.<br>📧 How to contact me : sedefmrcan@outlook.com
+<br> ✔️I work as a AHE Process Support Representative.<br>🏫 I'm studying Computer Programming.<br>💻 I'm currently learning Front-End.<br>💬 I'm just starting to learn software.<br>📧 How to contact me : sedefmrcan@outlook.com
 
 
 ## 🌐 Socials:
